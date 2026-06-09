@@ -1,4 +1,4 @@
-#  
+#  Experience anime card collection like never before with anime card collection hidden Script, the #1 Script. Includes teleport and auto-sell for
 
 
 
